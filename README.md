@@ -1,0 +1,4 @@
+- 👋 Hi, I’m DIVYANSHI BHATIA 
+- 🌱 I’m currently PURSUING BACHELOR OF ENGINEERING IN COMPUTER SCIENCE WITH SPECIALIZATION IN ARTIFICIAL INTELLIGENCE AND MACHINE LEARNING 
+- 💞️ read more about me at ---> https://divyanshibhatia.my.canva.site/divyanshi-bhatia
+- 📫 How to reach me ----> divyanshibhatia2020@gmail.com
